@@ -2,7 +2,7 @@
 - 👀 I’m interested in Lol
 - 🌱 I’m currently learning Pc
 - 💞️ I’m looking to collaborate on University
-- 📫 How to reach me in the pedrohguede@ufrr.com
+- 📫 How to reach me in the pedrohguede@ufrr.br
 - 😄 Pronouns: ...him he
 - ⚡ Fun fact: ... i date
 
